@@ -1,0 +1,2 @@
+# KaseiCoin-
+The mars cryptocurrency!!
